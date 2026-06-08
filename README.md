@@ -1,1 +1,1 @@
-https://sabrinnamelo.github.io/contabilidade-site-final/
+https://sabrinnamelo.github.io/contabilidade/
